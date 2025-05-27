@@ -1,1 +1,1 @@
-hi this is James Mullhann Gunourne Hulfer Parntasyn "Rufus" Mally Nourn Tonrour Liam and i am ![Virtually A developer](https://badgen.net/badge/Virtually%20/a%20developer/green?icon=visualstudio) working on stuff *totally not* related to other stuff people have been making
+hi im humbledon and i am ![Virtually A developer](https://badgen.net/badge/Virtually%20/a%20developer/green?icon=visualstudio) working on stuff *totally not* related to other stuff people have been making
